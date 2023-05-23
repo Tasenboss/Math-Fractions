@@ -1,2 +1,2 @@
-# Gamehub
-This website is for... educational purposes...
+# AASMS Unblocker
+This website is for... educational purposes... "Totally"
